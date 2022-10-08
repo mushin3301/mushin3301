@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning deep learning algorithms.
 - 💞️ I’m looking to collaborate on cybersecurity research.
 - 📫 How to reach me dm me on twittwr or whatsapp.
--📱 Text me on whatsapp on +91 8420346099.
+- 📱 Text me on whatsapp on +91 8420346099.
